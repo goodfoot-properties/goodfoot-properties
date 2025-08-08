@@ -1,0 +1,1 @@
+app, property for sale, rent house Kenya, buy land, apartments for rent, no broker fees, direct property deals, verified property listings, homes for sale Kenya, plot for sale, commercial property, real estate Kenya, house for rent no agent, cheap land Kenya, invest in property
